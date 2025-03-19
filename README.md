@@ -1,0 +1,1 @@
+# Adobe-Acrobat-AutoSave-for-macOS
